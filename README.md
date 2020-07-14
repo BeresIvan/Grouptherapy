@@ -1,4 +1,4 @@
-# Grouptherapy
+# Group Therapy
 
 Hello everyone!
 
