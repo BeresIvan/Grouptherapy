@@ -1,5 +1,5 @@
 # Group Therapy
+===========
 
-Hello everyone!
-
-I am really looking forward to taking this class.
+This cool and empty space. 
+Far above and all around me.
